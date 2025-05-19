@@ -2,7 +2,7 @@
 
 Why do I feel like I'm being watched? Like every action is being recorded and monitored? Well, that sure is the case here because you're here!
 
-So, check out my [website](www.choheitoby.com) or continue looking.
+So, check out my [website](https://www.choheitoby.com/) or continue looking.
 
 Don't think too hard about it.
 
